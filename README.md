@@ -1,4 +1,4 @@
-# The-Black-Book-Map
+# Black Book Map 🌍📚
 
 I created the Black Book Map after realizing that The Three Musketeers was written by a Black author and that pirates both freed and enslaved people across the globe. Growing up, I learned about my ancestors and their power, but it wasn’t until I explored books that I truly saw their ingenuity and creativity.
 
